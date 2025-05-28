@@ -1,4 +1,4 @@
-Multibanco à Portuguesa: Só Falta o Pastel de Nata - Fundamentos de Inteligência Artificial e Ciência de Dados  
+Economia à Portuguesa: Só Falta o Pastel de Nata - Fundamentos de Inteligência Artificial e Ciência de Dados  
 Licenciatura em Inteligência Artificial e Ciência de Dados  
 Universidade da Beira Interior
 
